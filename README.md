@@ -14,7 +14,8 @@ Sheet - Pawel (Eastlander)
 
 no fifth.
 
-Saturday - 11 races, confused winds ~10knots-ish, Inverkeithing bay
+Saturday - 11 races, confused winds ~10knots-ish, Inverkeithing bay## Largs Event Oct 9/10 EASTLANDER
+
 
 Tide goes out the middle of the channel, and comes in round the edges of the bay, so different strengths in different places on ebb compared to flow.
 
@@ -88,5 +89,20 @@ With just 4people, reefed, in 30knots, was flapping the whole main and broaching
 
 On the startline, do not expect to barge. There will be no gap. Boats got snarled up in this. Better to get in the queue, behind boats, not coming in from the side, or duck across and look for a clear spot. Clear air matters more in a sprint race. Also choosing least busy gate made a difference for the race winners. From 15th to 4th in one leg as a result of avoiding trouble.
 
+### Sail shape
 
+CHRU were twisted off and making better VMG on saturday.
 
+### Notes on sprint slams from Emil 
+
+(to do)
+
+## Largs Event Oct 9/10 EASTLANDER
+
+Bow - Steve Thomson
+Spinnaker Sheet  Big Pawel
+Pit - Wee Pawel
+Main sheet/guy - Emil
+Helm - Tim 
+
+### Pre-event plans
