@@ -1,5 +1,7 @@
 # 707
 
+Notes on events in chronological order - scroll down for the latest. Collaborators - feel free to edit (click on the pen icon to edit online)
+
 ## Sprint Slams 23-24 Sept 2021 PEYC
 
 Apollo
