@@ -163,6 +163,11 @@ Pit - Wee Pawel
 Main sheet/guy - Emil
 Helm - Tim 
 
+### Heavy winds
+Comment in [review](https://www.boats.com/reviews/madforsailing-test-hunter-707/)
+"In a breeze, not having a backstay made it a bit of a drama upwind, as there's no easy way to flatten the mainsail by bending the mast. [...] For the record, we felt the best way to get upwind in a blow was by powering up the bottom of the mainsail and using a combination of sheet, traveller and vang to twist off the top."
+
+
 ### Pre-event plans
 
 Boat in Friday afternoon, mast up 2pm with help from other Crews. Tim and Steve to arrive mid afternoon (work constraints)
